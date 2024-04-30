@@ -1,2 +1,2 @@
-I attached previous comments and i resolved my task as per description.
-comments:The solution is decent.
+I ATTACCHED PREVIOUS COMMENTS AS PER COMMENTS I RECTIFIED TASKS
+Resubmitted task: - The solution is incomplete as per the task description.
